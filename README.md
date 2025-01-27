@@ -1,6 +1,6 @@
 Hi, my name is Julia, but everybody call me by Bacelar
 
-  👩🏽 | 20 years old.
+  👩🏽 | 21 years old.
   
   🌎 | I'm Brazilian, from Santos-SP.
   
