@@ -4,7 +4,7 @@ Hi, my name is Julia, but everybody call me by Bacelar
   
   🌎 | I'm Brazilian, from Santos-SP.
   
-  👩🏽‍🎓 | Studying at UTFPR Computer Engineering
+  👩🏽‍🎓 | Studying at Fatec SI
   
   ⚽️ | Santos F.C.
   
