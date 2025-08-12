@@ -12,6 +12,12 @@ but everybody call me by Bacelar
   
   ⚽️ | Santos F.C.
   
- 
+## Interests:
+  💻 | Passionate about web development  
   
+  📚 | Always learning new technologies  
+  
+  🌱 | Open to collaborations and new projects  
+
+Feel free to connect with me!
  
