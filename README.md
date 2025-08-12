@@ -1,4 +1,8 @@
-### Hi, my name is Julia, but everybody call me by Bacelar
+## 👋 Hi, I am Julia! 
+
+but everybody call me by Bacelar
+
+## About me:
 
   👩🏽 | 21 years old.
   
