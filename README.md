@@ -4,7 +4,7 @@ but everybody call me by Bacelar
 
 ## About me:
 
-  👩🏽 | 21 years old.
+  👩🏽 | 22 years old.
   
   🌎 | I'm Brazilian, from Santos-SP.
   
